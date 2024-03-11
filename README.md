@@ -1,4 +1,6 @@
-### Hi there 👋 I am using WhatsApp
+## Professional Dumbass
+https://i.kym-cdn.com/photos/images/original/001/244/898/975.png
+Employed at Japa Incorporated, working 69/7 and earning whopping 10000 Kwanzas monthly
 
 <!--
 **DEF1M/DEF1M** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
